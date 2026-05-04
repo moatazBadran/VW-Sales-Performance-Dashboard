@@ -68,6 +68,8 @@ If you have any questions, suggestions, or need help understanding the dashboard
 
 👉 Feel free to reach out — I’m happy to help!
 
+LinkedIn: https://www.linkedin.com/in/moataz-badran/
+
 ---
 
 ## 📬 Connect With Me
